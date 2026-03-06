@@ -1,2 +1,0 @@
-# unblockedbyklyde
-website for school
